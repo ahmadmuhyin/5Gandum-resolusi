@@ -1,0 +1,1 @@
+# 5Gandum-resolusi
